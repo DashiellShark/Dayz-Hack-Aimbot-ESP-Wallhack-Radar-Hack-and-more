@@ -1,6 +1,5 @@
 # Dayz-Hack-Aimbot-ESP-Wallhack-Radar-Hack-and-more
 
-
 If you ever need to test your strategic skills, you can do so by playing DayZ. This Bohemia Interactive published game requires you to do whatever it takes to survive the outbreak. Killing other players as well as the “infected”, co-operating with others to stay alive and whatnot! This game will surely keep you on the edge of your seat.
 
 It should be noted that no matter how much time you spend in crafting an effective strategy to win the game, there can be a competitor using different DayZ hacks and cheats who can easily eliminate you from the game and waste all of your efforts in a second. So, in order to stay ahead of such players, it is recommended that you use DayZ cheats and hacks as well.
